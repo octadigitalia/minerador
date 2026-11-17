@@ -38,4 +38,4 @@ minerador/
 
 ## Uso gratuito por enquanto
 
-A skill está liberada de graça por tempo indeterminado. Se ela te ajudar, segue [@matheuz.ia](https://instagram.com/matheuz.ia) no Instagram.
+A skill está liberada de graça por tempo indeterminado. Se ela te ajudar, segue [@minerando.ia](https://instagram.com/minerando.ia) no Instagram.
